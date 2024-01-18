@@ -2,11 +2,11 @@
 
 
 <h2 align="center">
-    ──「  𝐈𝛕ᷟ͢𝚣⃪ꙴ ⋆‌⃝ʜᴏᴛ𓃭 ⃟ᴍᴜsɪᴄ⛦⃕͜༆ 」──
+    ──「  𝐈𝛕ᷟ͢𝚣⃪ꙴ ⋆‌⃝ʜᴏᴛ𓃭⏤͟͞•꯭🇸𝗛𝗜𝗩❤️🇲𝐔𝐒𝐈𝐂٨ﮩ➛ ⃟ᴍᴜsɪᴄ⛦⃕͜༆ 」──
 </h2>
 
 <p align="center">
-  <img src="https://telegra.ph/file/2c6c85113422097bd67a1.jpg">
+  <img src="https://telegra.ph/file/913c60619ba5e8b35f105.jpg">
 </p>
 
 <p align="center">
